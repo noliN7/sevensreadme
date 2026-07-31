@@ -52,3 +52,4 @@ may be blissfully like unaware if youre upset i dont. get social cues. at all. s
 <img width="99" height="55" alt="7fff9fe3" src="https://github.com/user-attachments/assets/873d16f6-19d6-438e-a8dc-ebe3a5b4bd0f" />
 <img width="99" height="55" alt="dd7u8l2-64ff2ae6-3f63-44dc-9e5e-0da2a154c73f" src="https://github.com/user-attachments/assets/2029b1a1-a801-4ae0-830d-719d2522fdc1" />
 <img width="99" height="56" alt="tumblr_f84e6c9c17e09660a0fec7ef0975dd5a_74c048f4_500" src="https://github.com/user-attachments/assets/a160ec70-62a7-4731-b98c-3709627c16bf" />
+WHAT THE HELL -=noli
