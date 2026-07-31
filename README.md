@@ -53,3 +53,17 @@ may be blissfully like unaware if youre upset i dont. get social cues. at all. s
 <img width="99" height="55" alt="dd7u8l2-64ff2ae6-3f63-44dc-9e5e-0da2a154c73f" src="https://github.com/user-attachments/assets/2029b1a1-a801-4ae0-830d-719d2522fdc1" />
 <img width="99" height="56" alt="tumblr_f84e6c9c17e09660a0fec7ef0975dd5a_74c048f4_500" src="https://github.com/user-attachments/assets/a160ec70-62a7-4731-b98c-3709627c16bf" />
 WHAT THE HELL -=noli
+<img width="99" height="56" alt="5235cfa6" src="https://github.com/user-attachments/assets/4991d179-860d-4682-a45a-00c2103c95b8" />
+<img width="99" height="56" alt="39de1dc7" src="https://github.com/user-attachments/assets/a1b723ff-0516-487c-ad75-f430e6c78502" />
+<img width="99" height="56" alt="58fbca79" src="https://github.com/user-attachments/assets/2494220b-7ff9-4803-af35-8e52e4f3588b" />
+<img width="99" height="56" alt="0d53cc6f" src="https://github.com/user-attachments/assets/ea1ccfbc-36ee-4e92-9e01-6cc82446c2a8" />
+<img width="99" height="55" alt="4a82b7eb" src="https://github.com/user-attachments/assets/cf699578-eccc-4e55-9c55-ce1eaf4c4b3a" />
+<img width="99" height="56" alt="4db2b0ac" src="https://github.com/user-attachments/assets/8d4f7b05-b31b-465c-97fd-e107ef7d89f5" />
+<img width="101" height="57" alt="tumblr_inline_owuh7ilzav1u5rvwj_500" src="https://github.com/user-attachments/assets/59ca2d54-644c-4847-91e3-8642d98e7b22" />
+<img width="99" height="56" alt="3079ce6c" src="https://github.com/user-attachments/assets/59be6852-4dd9-4c42-bcab-a49d355eb17f" />
+<img width="99" height="56" alt="5bb56898" src="https://github.com/user-attachments/assets/6a272aba-da82-4c63-833c-e7b729ff29a5" />
+<img width="101" height="57" alt="835b47fd" src="https://github.com/user-attachments/assets/7373e8fd-88f0-49fc-b01c-1f0af92a6df4" />
+<img width="101" height="57" alt="b0206e45" src="https://github.com/user-attachments/assets/0d05a7ef-191f-4a61-b253-95bd8418a0d0" />
+<img width="99" height="56" alt="58fbca79" src="https://github.com/user-attachments/assets/f2a3be17-fff5-4de3-9d9c-7c5dd0b8f2ac" />
+<img width="99" height="56" alt="62fe77b1" src="https://github.com/user-attachments/assets/78634139-0d67-4b4d-96c1-d726bc9ee844" />
+<img width="99" height="56" alt="0a0ab5b4" src="https://github.com/user-attachments/assets/594b5c95-b115-4025-a126-5ad1a3132e5e" />
